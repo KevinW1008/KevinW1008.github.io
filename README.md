@@ -1,1 +1,2 @@
-# Genshin Impact - The Analysis of Gacha Games
+# KevinW1008.github.io
+
